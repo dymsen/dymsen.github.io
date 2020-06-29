@@ -1,51 +1,46 @@
 # This is the way...
-No eye for attention (Attention)
-But they know my name
-No place for the question (Question)
-But the answer's changed
-Cut from a different cloth
-I've never turned back to the waves I've crossed
+No eye for attention (Attention) But they know my name No place for the question But the answers changed Cut from a different cloth Ive never turned back to the waves Ive crossed
 Throw my demons to the fire
-Something inside that's
+Something inside thats
 Awaken tonight and
-A warrior's silence
-But I couldn't be saved
-Shadows deceivin'
+A warriors silence
+But I couldnt be saved
+Shadows deceivin
 A path I believe in
-But I won't be flyin' in place
+But I wont be flyin in place
 This is the way
-New sin for the taking (Taking)
-Try to find my code (Code)
-No armor is breaking (Breaking)
-I'm gonna walk this road
+New sin for the taking 
+Try to find my code 
+No armor is breaking
+Im gonna walk this road
 Light from a different star
 I've never gone back on a life this far
-Forgotten blood of an empire (Empire)
+Forgotten blood of an empire 
 Something inside that's
 Awaken tonight and
-A warrior's silence
+A warriors silence
 But I couldn't be saved
-Shadows deceivin'
+Shadows deceivin
 A path I believe in
-But I won't be flyin' in place
+But I wont be flyin in place
 This is the way
 This is the way
 This is the way
 Cut from a different cloth
-I've never turned back to the waves I've crossed
+Ive never turned back to the waves Ive crossed
 Throw my demons to the fire
 Throw my demons to the fire
-Something inside that's
+Something inside thats
 Awaken tonight and
-A warrior's silence
-But I couldn't be saved (Couldn't be saved)
-Shadows deceivin'
+A warriors silence
+But I couldnt be saved 
+Shadows deceivin
 A path I believe in
-But I won't be flyin' in place
+But I won't be flyin in place
 This is the way
 This is the way
 This is the way
-Shadows deceivin'
+Shadows deceivin
 A path I believe in
-But I won't be flyin' in place
+But I won't be flyin in place
 This is the way
