@@ -55,3 +55,5 @@ This is the way
 As Baby Yoda will say:
 
 > Patience you must have my friend
+
+<img src="https://upload.wikimedia.org/wikipedia/en/thumb/0/00/The_Child_aka_Baby_Yoda_%28Star_Wars%29.jpg/220px-The_Child_aka_Baby_Yoda_%28Star_Wars%29.jpg"/>
