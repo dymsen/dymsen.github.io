@@ -51,3 +51,7 @@ This is the way
 * Internet Memes
 * Merchandise
 * Testi
+
+As Baby Yoda will say:
+
+> Patience you must have
